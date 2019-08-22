@@ -5,3 +5,8 @@ https://www.allianz.com.au/life-insurance/news/victims-of-speeding
 https://acornrentals.com.au/what-percentage-of-car-accidents-are-caused-by-mobile-phone-users/
 https://www.thebalance.com/distracted-driving-teens-2645865
 https://www.intellimec.com/ims-blog/distracted-driving-awareness
+https://www.drive-safely.net/teenage-drunk-driving/
+https://www.stanfordchildrens.org/en/topic/default?id=preventing-impaired-driving-in-your-teen-160-47
+https://www.betterhealth.vic.gov.au/health/healthyliving/alcohol-teenagers
+https://drinkwise.org.au/under-18s/behind-the-wheel-the-dangers-of-drink-driving/#
+https://www.cdc.gov/vitalsigns/teendrinkinganddriving/index.html
